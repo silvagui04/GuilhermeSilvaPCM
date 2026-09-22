@@ -14,4 +14,4 @@
 
 ---
 
-© 2026/2027 — Guilherme Silva
+2026/2027 — Guilherme Silva
