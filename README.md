@@ -7,7 +7,7 @@
 
 ---
 
-## 👨‍🎓 Informações
+## Informações
 
 **Curso:** Produção de Conteúdos Multimédia  
 **Ano letivo:** 2026/2027 
